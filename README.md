@@ -1,1 +1,1 @@
-Nomal a special Birthday Wish for a special Person
+Nomally a Birthday Wish for a special Person
